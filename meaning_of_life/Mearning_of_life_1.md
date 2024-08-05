@@ -18,7 +18,7 @@ Together, they suggest that meaning is not something to be discovered in abstrac
 
 While all these perspectives are great and remove the possibilities of acting in a way that distances you from what you could be, this still does not answer the main question … 
 
-Some time ago Nietzsche declared the “death of God”, while this phrase is usually found in public bathrooms followed by the quotes “Nietzsche is dead - God”, it was more like a scream things that would follow. This was a profound and unsettling proclamation reflecting his horror at the implications of a world without the traditional moral and metaphysical frameworks provided by religion.
+Some time ago Nietzsche declared the “death of God”, while this phrase is usually found in public bathrooms followed by the quotes “Nietzsche is dead - God”, it was more like a scream to the things that would follow. This was a profound and unsettling proclamation reflecting his horror at the implications of a world without the traditional moral and metaphysical frameworks provided by religion.
 
 As Nietzche said : “ “Whither is God?” he cried; “I will tell you. We have killed him—you and I. All of us are his murderers. Who gave us the sponge to wipe away the entire horizon? What were we doing when we unchained this earth from its sun? Whither is it moving now? Whither are we moving? …” 
 
