@@ -12,6 +12,8 @@ And also topics that interest me :smile:
  
  - [Memories, Dreams, Reflections - Carl Jung](https://www.amazon.com/Memories-Dreams-Reflections-Carl-Gustav-ebook/dp/B004FYZK52/ref=tmm_kin_swatch_0?_encoding=UTF8&dib_tag=se&dib=eyJ2IjoiMSJ9.GbEJq1IpzZ3dPIfONEJaTWiPz5FFyxMuW9PIYmSeJU5DyT1Vo7L6GreiQ6LqoAtMuwJ5FTvQDNwi5Oec6-Fk9okTGODd2MDNPiccB5wtCi5Pij9vYIlHcLc2uKdccfzuZOmwakwH0gE3x7kBFWO8bxDTqHyruiBYZT5hnyapDA9JibNAPmvcypfV-_khvu12zhpIEDq_TaRrSNJQox51Vwx5sApx3wwqJEYIhaV9oj0.tR4G6nM9pYPZOUW5l_PIIPZzWUfVgDAuK_USSNEnkXc&qid=1722480153&sr=1-1)
  
+ - [Lost Connection -  Johann Hari](https://www.amazon.com/Lost-Connections-Uncovering-Depression-Unexpected-ebook/dp/B07583XJRW/ref=tmm_kin_swatch_0?_encoding=UTF8&qid=&sr=)
+ 
 
 ## 2024
 
